@@ -128,7 +128,7 @@ I'm always happy to connect with developers, exchange ideas and build something 
 </p>
 
 - 💼 LinkedIn: https://www.linkedin.com/in/shubham-agale-2a169228b?utm_source=share_via&utm_content=profile&utm_medium=member_ios
-- 📧 Email:agaleshubham7@gmail.com
+- 📧 Email: agaleshubham7@gmail.com
 
 ---
 
